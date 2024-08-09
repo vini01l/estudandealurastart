@@ -6,5 +6,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 00001112089809sp@al.educacao.sp.gov.br
 @alurastartestudante
-![]([tumblr_7f32a75b9750ddb3eabfe35320a1b476_e6c4d597_500](https://github.com/user-attachments/assets/98398bb9-34b8-4aac-92c7-55118e6d0457)
-)
+![]((![image](https://github.com/user-attachments/assets/e9fc47f3-2e5a-4392-a5a0-db16ba21b99a))
+
